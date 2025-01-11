@@ -1,6 +1,6 @@
-# Sprunki Parodybox - Create Unique Music in a Fun Online World
+# Sprunki Parodybox - Create Unique Music in a Fun World
 
-Welcome to Parodybox – the fusion of creativity and innovation. Featuring captivating characters, immersive soundscapes, and a user-friendly interface, Parodybox unlocks endless musical potential. Embark on your creative journey and find your unique artistic voice within this dynamic platform. Let Parodybox ignite your passion for musical exploration today.
+Welcome to Sprunki Parodybox – the fusion of creativity and innovation. Featuring captivating characters, immersive soundscapes, and a user-friendly interface, Sprunki Parodybox unlocks endless musical potential. Embark on your creative journey and find your unique artistic voice within this dynamic platform. Let Sprunki Parodybox ignite your passion for musical exploration today.
 
 ## Play Sprunki Retake Final Update Now
 Wanna dive into a hella cool music journey? Let's kick off this adventure!
