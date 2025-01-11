@@ -2,7 +2,7 @@
 
 Welcome to Sprunki Parodybox – the fusion of creativity and innovation. Featuring captivating characters, immersive soundscapes, and a user-friendly interface, Sprunki Parodybox unlocks endless musical potential. Embark on your creative journey and find your unique artistic voice within this dynamic platform. Let Sprunki Parodybox ignite your passion for musical exploration today.
 
-## Play Sprunki Retake Final Update Now
+## Play Sprunki Parodybox Now
 Wanna dive into a hella cool music journey? Let's kick off this adventure!
 
 - [Sprunki Parodybox](https://pyramixed.com/sprunki-parodybox)
