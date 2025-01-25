@@ -8,10 +8,10 @@ Wanna dive into a hella cool music journey? Let's kick off this adventure!
 - [Sprunki Parodybox](https://pyramixed.com/sprunki-parodybox)
 
 You may also like:
+- [Sprunksters](https://sprunksters.net/)
 - [Sprunki Pyramixed](https://pyramixed.com/)
 - [Sprunki Scrunkly](https://scrunkly.online)
 - [Sprunki Retake Final Update](https://pyramixed.com/sprunki-retake-final-update)
-- [Sprunki Sprunkr](https://sprunkr.me/)
 - [Sprunki Corruptbox](https://corruptbox.com/)
 
 ## Introduction to Sprunki Parodybox
